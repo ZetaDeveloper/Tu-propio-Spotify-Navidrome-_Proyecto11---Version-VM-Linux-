@@ -1,1 +1,0 @@
-# Tu-propio-Spotify-Navidrome-_Proyecto11---Version-VM-Linux-
